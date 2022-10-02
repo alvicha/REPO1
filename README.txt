@@ -5,4 +5,4 @@ sdfghjklñqwertyuiop
 asdfghjkl
 Manolito es alto
 Eres hermoso
-xcvbnmghjkl
+xcvbnmghjklfghjklñertyuiop
