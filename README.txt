@@ -7,3 +7,5 @@ Manolito es alto
 Eres hermoso
 xcvbnmghjklfghjklñertyuiop
 dfghjkltyui
+Editando este archivo como ejemplo
+sdfghjk
